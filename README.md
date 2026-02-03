@@ -1,3 +1,3 @@
-Last startlister fra EQtiming
-velg hvem du vil sekudnere
+Last startlister fra EQtiming.
+Velg hvem du vil sekudnere.
 Lykke til :)
